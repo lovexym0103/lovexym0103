@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+加油吧！为进博远社团努力！
 <!--
 **lovexym0103/lovexym0103** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
